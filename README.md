@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **arzoosarangal97@gmail.com**
 
-- ⚡ Fun fact **I am Chemical Engineer too**
+- ⚡ Fun fact **I am a Chemical Engineer too**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
